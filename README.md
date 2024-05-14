@@ -1,1 +1,2 @@
-![amy icon](https://github.com/cometstzrxiee/cometstzrxiee/assets/155057376/99a3b9ab-e47c-47ff-b03b-4f349f9d2135)
+![Amy rose supremacy 💕](https://github.com/cometstzrxiee/cometstzrxiee/assets/155057376/5abec4c3-af02-4a2f-8159-76af81893f7d)
+
